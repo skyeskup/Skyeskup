@@ -8,3 +8,4 @@ If u want to block me or unfriend me go ahead u really don't care and if u want 
 I am a talkative person and I love to yap!!I have some fav character 
 rouge, honey , cream , and shelly !!!
 ![Image](https://github.com/user-attachments/assets/55be0ff0-404b-40bf-900d-28521913d38a)[Image](https://github.com/user-attachments/assets/132e192a-5b2f-4041-91b9-43cb8b3d7d83)![Image](https://github.com/user-attachments/assets/18f2fb6e-fae0-471d-a968-e163a0c1c0c3
+![Image](https://github.com/user-attachments/assets/d5f50e4f-5880-4cb9-8e45-49b99eeccf02)![Image](https://github.com/user-attachments/assets/d5f50e4f-5880-4cb9-8e45-49b99eeccf02
