@@ -22,7 +22,7 @@ I'm Morocco and straight!!  I might be freaky sometimes if u really liked u
 I love sitting with homies and people has c+h on their name!!
 If u want to block me or unfriend me go ahead u really don't care and if u want us to start over I would 
 I am a talkative person and I love to yap!!I have some fav character 
-rouge, honey , cream , and shelly !!!
+rouge, honey , cream , maki , and shelly !!!
 
 
 
