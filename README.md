@@ -1,4 +1,5 @@
 ![Image](https://github.com/user-attachments/assets/dd5aef06-91ba-4596-beb9-5b24d953a8a6)![Image](https://github.com/user-attachments/assets/dd5aef06-91ba-4596-beb9-5b24d953a8a6
+![Image](https://github.com/user-attachments/assets/7151020d-852d-4a3a-a4dd-f973dca760c4)![Image](https://github.com/user-attachments/assets/7151020d-852d-4a3a-a4dd-f973dca760c4
 HIIIII THERE NICE TO MEET U I REALY would love if u be my friend 
 hiii I'm skye 15 years old born in February 06 2010 
 I'm Morocco and straight!!  I might be freaky sometimes if u really liked u 
