@@ -8,10 +8,9 @@ c+h is always welcome
 
 
 
-![Image](https://github.com/user-attachments/assets/0acdd21f-3e8d-4b8e-995d-50db5d38b647)
+![Image](https://github.com/user-attachments/assets/0acdd21f-3e8d-4b8e-995d-50db5d38b647) ty for reading this
 
 
 
 
 
-ty for reading this
