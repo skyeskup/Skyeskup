@@ -9,7 +9,7 @@
 hii I'm sky nice to meet u!! if u wanna sit and int with me in pony town go ahead I really love too and if u wanna friend me let me know u first!! 
 c+h is always welcome
 
-my fac characters : rouge ⊰ honey ⊰ makiroll ⊰ cream ⊰ Shelly ⊰ Molly⊰
+my fav characters : rouge ⊰ honey ⊰ makiroll ⊰ cream ⊰ Shelly ⊰ Molly⊰
 
 dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline"༄
 
