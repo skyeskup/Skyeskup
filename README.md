@@ -5,6 +5,8 @@
 -ˋˏ✄┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ-ˋˏ┈┈┈┈-ˋˏ
 
 
+dc : skyie_sho
+
 
 hii I'm sky nice to meet u!! if u wanna sit and int with me in pony town go ahead I really love too but remember to whisper since i might be afk or offtab! and if u wanna friend me let me know u first!! 
 c+h is always welcome
