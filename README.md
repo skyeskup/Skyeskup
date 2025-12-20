@@ -17,8 +17,8 @@
 
 this small thing abt me!!
 HIIIII THERE NICE TO MEET U I REALY would love if u be my friend 
-hiii I'm sky 15 years old born in February 06 2010 
-I'm Morocco and straight!!  I might be freakyand mean too sometimes if i really likes u!!
+hiii I'm sky 15 years old (8- plz dni) born in February 06 2010 
+I'm Morocco and straight!!  I might be freaky and mean sometimes if i really likes u!!
 I love sitting with homies and people has c+h on their name!!
 If u want to block me or unfriend me go ahead i really don't care and if u want us to start over I would love too
 I am a talkative person and I love to yap!!I have some fav character 
