@@ -3,5 +3,5 @@
                                                                                                                            
 -ˋˏ✄┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ-ˋˏ┈┈┈┈-ˋˏ
 
-
-                hii    I'm sky
+hii I'm sky next to meet u!! if u wanna sit and int with me go ahead I really love too and if u wanna friend me let me know u first!! 
+c+h is always welcome
