@@ -11,7 +11,7 @@ c+h is always welcome
 
 my fav characters : rouge ⊰ honey ⊰ makiroll ⊰ cream ⊰ shelly and molly
 
-
+![Image](https://github.com/user-attachments/assets/3af98732-4387-46a9-8654-21f41aa236fb)
 
 dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline"༄
 
