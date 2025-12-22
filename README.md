@@ -11,6 +11,7 @@ dc : skyie_sho
 small thing abt me
 
 hii I'm sky nice to meet u!! if u wanna sit and int with me in pony town go ahead I really love too but remember to whisper since i might be afk or offtab! and if u wanna friend me let me know u first!! I am a sensitive person and I have attachment issues 
+
 c+h is always welcome
 
 my fav characters : rouge ⊰ honey ⊰ makiroll ⊰ cream ⊰ shelly and Molly ʚଓ
