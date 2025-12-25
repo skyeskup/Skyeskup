@@ -20,7 +20,7 @@ c+h is always welcome
 
 my fav characters : rouge ⊰ honey ⊰ makiroll ⊰ cream ⊰ shelly and Molly ʚଓ
 
-dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline"༄
+dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre|Tarnsgender haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline"༄ plz respect this and dni
 
 
 
@@ -30,4 +30,5 @@ dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neo
 
 
 
- ![Image](https://github.com/user-attachments/assets/5289612f-cd94-481b-bee4-3f47d9886784)
+ 
+![Image](https://github.com/user-attachments/assets/f6464fa5-2ea5-4a11-a7f1-8ed4df206a77)
