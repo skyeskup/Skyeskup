@@ -9,7 +9,7 @@
 
                                                                                                                            
 -ˋˏ✄┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ┈┈┈┈-ˋˏ-ˋˏ┈┈┈┈-ˋˏ
-![Image](https://github.com/user-attachments/assets/0d717be9-73d1-445c-b06b-4d9883cfd1a6)dc: skyie_sho 
+dc: skyie_sho 
 
 
 small thing abt me
