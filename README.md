@@ -31,4 +31,5 @@ dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neo
 
 
  
-![Image](https://github.com/user-attachments/assets/394170d8-3acf-45e0-b89f-7d764bd2f849)
+
+![Image](https://github.com/user-attachments/assets/0b9a0097-3914-47c6-8fb1-d5d0ad494c22)
