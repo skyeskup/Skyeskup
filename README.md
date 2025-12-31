@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/0c612635-acde-422a-89a4-2e2ddbbc7655)
-![Image](https://github.com/user-attachments/assets/9afa8658-a76f-4adb-a089-711be15b1691)
+![Image](https://github.com/user-attachments/assets/411660c6-e079-4e97-8693-9e51c0d7a2d7)
 
 wip!!
 dc: skyie_sho 
