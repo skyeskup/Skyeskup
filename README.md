@@ -6,3 +6,4 @@ dc: skyie_sho
 
 
 dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre|Tarnsgender haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline" shaddycatz arts supporter ⊰ nickey x shadow comic supporter ༄ plz respect this ![Image](https://github.com/user-attachments/assets/ea8011e5-813d-46ba-b1a0-cbc3380947c1)
+![Image](https://github.com/user-attachments/assets/a4a34b31-7b17-4ca4-9a13-d93ce2ba436b)
