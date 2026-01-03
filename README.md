@@ -1,10 +1,1 @@
-wip
-![Image](https://github.com/user-attachments/assets/411660c6-e079-4e97-8693-9e51c0d7a2d7)
-![Image](https://github.com/user-attachments/assets/67a534be-6999-4d67-a67a-2dd6198829ca)
-
-dc: skyie_sho 
-
-
-
-dni: proshippers ⊰ Trump supporter  ⊰ I̶s̶r̶a̶e̶l̶ supporter   ⊰ neopronouns|xenogendre|Tarnsgender haters ⊰ "non-binary and Tarnsgender ppl aren't real" ⊰ toxic Timothy | Melanie supporters  ⊰ sexist and racist  ⊰ furry haters  ⊰ people who make  SA/🍇 "jokes" ⊰  Wilbur soot supporter  ⊰ hendonia followers ⊰  nikata followers ⊰ "hitting a child is just discipline" shaddycatz arts supporter ⊰ nickey x shadow comic supporter ༄ plz respect this ![Image](https://github.com/user-attachments/assets/ea8011e5-813d-46ba-b1a0-cbc3380947c1)
-![Image](https://github.com/user-attachments/assets/a4a34b31-7b17-4ca4-9a13-d93ce2ba436b)
+![Image](https://github.com/user-attachments/assets/c1a345f6-4ae8-4597-9670-9bf378695826)
