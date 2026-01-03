@@ -5,4 +5,3 @@ dc: skyie_sho
 
 need to know first before adding 
 
-don't forget to follow my mother @lazikoly 
